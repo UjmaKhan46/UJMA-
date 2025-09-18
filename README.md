@@ -10,4 +10,4 @@
 
 🔗 Connect with me:  
 📎 [LinkedIn](https://www.linkedin.com/in/ujma-khan-521520292?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)   
-📸 [Instagram](https://www.instagram.com/ujmaa26?igsh=MjBxOTdnZ245OWQy)
+
